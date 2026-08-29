@@ -1,5 +1,5 @@
 # 💫 About Me:
-Saya adalah mahasiswa Teknik Informatika yang bersemangat dalam mengembangkan solusi digital melalui web development. Saya memiliki pengalaman dalam membangun aplikasi berbasis web dan mobile.
+Saya adalah mahasiswa Teknik Informatika yang bersemangat dalam scroll fesnuk 😎😎😎.
 
 
 ## 🌐 Socials:
